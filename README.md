@@ -24,5 +24,6 @@
 
 [微信](https://bigjackson.us.kg/pay)
 [支付宝](https://bigjackson.us.kg/pay)
+[哔哩哔哩](https://space.bilibili.com/1549550569?spm_id_from=333.1007.0.0)
 
 ![BigJackson の 小破站](https://pic4.zhimg.com/80/v2-15053bf54473725413166a1f297d574d_1440w.webp)
