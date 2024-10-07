@@ -25,4 +25,4 @@
 [微信](https://bigjackson.us.kg/pay)
 [支付宝](https://bigjackson.us.kg/pay)
 
-![BigJackson の 小破站]([https://user-images.githubusercontent.com/122191366/211533469-351009fb-9ae8-4601-992a-abbf54665b68.jpg](https://pic4.zhimg.com/80/v2-15053bf54473725413166a1f297d574d_1440w.webp))
+![BigJackson の 小破站](https://pic4.zhimg.com/80/v2-15053bf54473725413166a1f297d574d_1440w.webp)
